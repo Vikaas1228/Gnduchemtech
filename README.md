@@ -1,1 +1,1 @@
-# https-5f6d426b-5377-43e3-91a5-2ab2fa335aad-00-1i43kuww9u4p7.spock.replit.dev-
+Gnduchemtech
